@@ -8,7 +8,7 @@ Russia, Vladikavkaz, North - Ossetia
 
 ![Vladkikavkaz] (https://yandex.ru/images/search?pos=2&from=tabbar&img_url=http%3A%2F%2Favatars.dzeninfra.ru%2Fget-zen_doc%2F5286086%2Fpub_61c369469dc82a17ef332883_61c36f12c1fd4f1308dd13f2%2Fscale_1200&text=владикавказ&rpt=simage&lr=33):  
 
-Stady in Netologi 
+Study in Netologi 
 
 Poland, Rzeszów, Woewódstwo Podkarpackie
 
